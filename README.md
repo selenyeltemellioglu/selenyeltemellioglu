@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on anything and everything
 - 📫 How to reach me [...](https://www.linkedin.com/in/selenyel)
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am "very" short
+- ⚡ Fun fact: I love helping people!
+- 🧿 I know French, English, Spanish and Turkish!
 
 <!---
 selenyeltemellioglu/selenyeltemellioglu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
